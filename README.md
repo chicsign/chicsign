@@ -11,4 +11,4 @@ I'm studying English conversation these days. 📙🤔
 
 🏠 https://dailylonnie0125.tistory.com/
 
-💙💛 I love VIXX!! ㅋㅋㅋㅋ 💛💙
+💙💛 I love VIXX!! voice, visual, value in excelsis!!! ㅋㅋㅋㅋ💛💙
